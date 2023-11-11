@@ -1,2 +1,2 @@
-# AdituaPratama828
+# AdityaPratama828
 Aesthetic GitHub Profile
